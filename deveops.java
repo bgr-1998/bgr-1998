@@ -1,2 +1,2 @@
 hello everyone
-tomorrow their will be no class
+tomorrow their will be a class
